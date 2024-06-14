@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Becky4Jesus
-- 👀 I’m interested in ...love and caring with leads of fun
-- 🌱 I’m currently learning ...to code and create great things for this generation 
-- 💞️ I’m looking to collaborate on ... building and creating website 
+- 👀 I’m interested in ...love and helping people, reading and traveling 
+- 🌱 I’m currently learning ...how to code and create great things for this generation 
+- 💞️ I’m looking to collaborate on ... building and creating websites 
 - 📫 How to reach me ... is through my email or LinkedIn
 - 😄 Pronouns: ... she her hers
 - ⚡ Fun fact: ...I  tease and laugh alot
