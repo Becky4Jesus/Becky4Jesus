@@ -6,7 +6,7 @@
 - 😄 Pronouns: ... she her hers
 - ⚡ Fun fact: ...I  tease and laugh alot
 
-<!---
+<!---i am not sure of what I am doing here Lord have mercy 
 Becky4Jesus/Becky4Jesus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
